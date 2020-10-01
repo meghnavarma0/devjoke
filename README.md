@@ -345,3 +345,9 @@ Answer: 1
 
 ***
 
+### If Programming Languages Were To Propose:
+
+Java: I promise there hasn’t been a day that I stopped wanting you and haven’t gotten out of my head at all since I first met you!!
+
+Python: I love you ;)
+
